@@ -4,7 +4,7 @@
 - ૮ • ﻌ - ა I’m looking to collaborate on... my growth in basic beginner programming, one step at a time until very advanced.
 - ᯤ ᯅ ᯤ How to reach me ... ??
 - ฅ^•ﻌ•^ฅ Pronouns: ...sheee / heeeeer
-- 𖦹ᯅ𖦹 Fun fact: ...sou de humanas e escolhi me aprofundar e aventurar em matemática...códigos mesmo assim. Tenho medo de parecer um homi e ou parecer ser bi ou não binario mas sou só uma jovem menina hetero meio feia no meio de um monte de homi 
+- 𖦹ᯅ𖦹 Fun fact: ...sou de humanas e escolhi me aprofundar e aventurar em matemática...códigos mesmo assim.
 
 <!---
 nanomariae/nanomariae is a ׂ 𓈒 ⋆ ۪ ☆⋆｡𖦹°‧★ special ☆⋆｡𖦹°‧★ ׂ 𓈒 ⋆ ۪ repository because its `README.md` (this file) appears on your GitHub profile.
